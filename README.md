@@ -1,1 +1,1 @@
-# PRODIGY_InfoTech
+# Prodgiy InfoTech
